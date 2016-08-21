@@ -16,5 +16,5 @@ I need a decent paying job
 
 ##How to Contribute
 
-First comes the money then power, then we get the women
+I need to make this change
 
